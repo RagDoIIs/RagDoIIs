@@ -1,3 +1,5 @@
+
+<p align="center"> Ｄｏ ｙｏｕ ｗａｎｎａ ｒｉｄｅ， ｗａｎｎａ ｇｏ ｆａｒ？
 <p align="center"> <img src="https://media.tenor.com/t4QZxwXRnnEAAAAC/childe-tartaglia.gif" width="520" >
 
 
